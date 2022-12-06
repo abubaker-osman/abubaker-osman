@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @abubaker-osman
-- 👀 I’m interested in ...many different aspects such as programing ,problem solving things.
+- 👀 I’m interested in ...many different aspects such as programing ,problem solving things etc.
 - 🌱 I’m currently learning ...different languages of computer.
 - 💞️ I’m looking to collaborate on ...some small things which will one day make a big difference
 - 📫 How to reach me ...abubakerosman56@outlook.com
